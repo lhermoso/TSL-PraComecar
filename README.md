@@ -36,7 +36,7 @@ Confira os resultados das nossas operações nos últimos dois meses em duas con
 ![Imagem 1](Resultados/1.jpeg)
 ![Imagem 2](Resultados/2.jpeg)
 
-*Inserir descrição detalhada dos resultados aqui.*
+
 
 ## Curso Trading Sem Limites
 
@@ -45,5 +45,7 @@ Se você deseja integrar o seleto grupo dos 5% dos traders que garantem ganhos e
 ---
 
 Leo Hermoso
+
 [Instagram](https://www.instagram.com/leoohermoso/)
+
 [Youtube](https://www.youtube.com/@leohermoso)
