@@ -38,10 +38,12 @@ Confira os resultados das nossas operações nos últimos dois meses em duas con
 
 *Inserir descrição detalhada dos resultados aqui.*
 
-## Curso
+## Curso Trading Sem Limites
 
-Se você deseja aprofundar seus conhecimentos e explorar todas as funcionalidades e potenciais da estratégia, recomendamos nosso curso completo disponível no [link](https://www.leohermoso.com.br/).
+Se você deseja integrar o seleto grupo dos 5% dos traders que garantem ganhos expressivos todos os dias e ainda têm tempo para aproveitar ao lado da família, não perca mais tempo: clique no [link](https://www.leohermoso.com.br/) e entre para o TSL agora.
 
 ---
 
-Obrigado por escolher a nossa estratégia de automação de trading. Desejamos a você sucesso em suas operações!
+Leo Hermoso
+[Instagram](https://www.instagram.com/leoohermoso/)
+[Youtube](https://www.youtube.com/@leohermoso)
